@@ -1,0 +1,1 @@
+# metods_AI_lab_5
